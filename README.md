@@ -1,1 +1,1 @@
-![прикол](https://sun9-36.userapi.com/impg/8OfRACmM1WZDbMH6gFmXvk-qHnySAcFXPeZE2A/RIsLIycM_UA.jpg?size=707x707&quality=96&sign=8affaac613f86ad92e5530e73663d149&type=album)
+![meme](https://sun9-15.userapi.com/impg/LMPVnTjkGV6Pe3cBeDz0tZWPvHqGQzzO93TuLQ/Wd1kB-_zG0k.jpg?size=996x1274&quality=95&sign=1a3b17904fa9e6cb63111728b33964b9&type=album)
