@@ -1,1 +1,1 @@
-![meme](https://sun9-15.userapi.com/impg/LMPVnTjkGV6Pe3cBeDz0tZWPvHqGQzzO93TuLQ/Wd1kB-_zG0k.jpg?size=996x1274&quality=95&sign=1a3b17904fa9e6cb63111728b33964b9&type=album)
+![meme](https://sun9-33.userapi.com/impg/YfR8FpT7jUiP08AkkY0S7kGRXqNxWPKsy6ZtAA/NWerns0EGqM.jpg?size=992x564&quality=96&sign=fc4e6693e9c02268c48592a6b9fc3160&type=album)
