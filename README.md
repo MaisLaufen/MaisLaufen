@@ -1,1 +1,1 @@
-![meme](https://c.tenor.com/w2uJs1EDBQkAAAAd/tenor.gif)
+![0_0](https://raw.githubusercontent.com/MaisLaufen/MaisLaufen/refs/heads/main/shuba-shuba-transparent.gif)
